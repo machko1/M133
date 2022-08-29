@@ -36,4 +36,4 @@ Ich finde es ist schlau gehandelt und es war einer der ersten Male, wo ich erfol
 
 Ich habe leider spät bemerkt, dass die Abgabe nicht spät am Abend ist sondern Mittagszeit, wegen der Teamsnachricht, weshalb ich leider das Portfolio verspätet abgebe.
 
-**Für nächstes Mal muss ich mehr auf die vorgegebenen Zeiten achten**
+**Für nächstes Mal muss ich mehr auf die vorgegebenen Zeiten achten** 
